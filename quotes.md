@@ -1,0 +1,1 @@
+Religion is the sigh of the oppressed creature, the heart of a heartless world, and the soul of soulless conditions. It is the opium of the people. Karl Marx, A Contribution to the Critique of Hegel's Philosophy of Right, 1843
