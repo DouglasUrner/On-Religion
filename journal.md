@@ -13,3 +13,11 @@ We can analyze both the design and the security of religions. We can develop tes
 Deities make sense and are ***huge*** bugs.
 
 Without deities specs and testing are possible.
+
+## 2020-11-08
+
+It is easier to obtain compliance when you have an external authority and harsh penalites (hell, shunning). Personal responsibility is more "flexible."
+
+An omnipotenet authority, or an infalible one, simplfies the problem further – but it also introduces very serious risks. Humans are neither omnipotent, nor infaliable, so any such construct requires a "superior being" (what many refer to a a "god"). This require magical thinking or, at the very least, the acceptance of a mystery or an onknowable. This can lead to a class of intermediaries with the omnipotent one and that gives rise to the potential for fraud, manipulation, confused motives, and mistaking mental illness for a devine connection.
+
+According to Nicholas Cristakis religososity increases in times of fear and crisis (e.g., during a pandemic).
