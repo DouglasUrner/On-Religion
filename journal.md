@@ -25,3 +25,11 @@ An omnipotenet authority, or an infalible one, simplfies the problem further –
 According to Nicholas Cristakis religososity increases in times of fear and crisis (e.g., during a pandemic). He's probably describing an observed engagement with churches and other religious structures as people seek guidance for how to be a good person in difficult times. People are probably seeking both absolution for not living up to their standards of compassion and also for insight into what "good personship" looks like in new and challenging circumstances.
 
 Cristakis conflates "religion" with adherence to moral authority – seeking outside direction for what to do in the ethical/moral/compassionate spheres of our lives.
+
+## 2020-11-22
+
+How do you test god/religion? What are the risks of being wrong? Is it right/moral/ethical/in keeping with your faith to hurt others? To hurt others if they are disobeying god? What are the consequences if you are wrong in your interpretation of how someone is living their life?
+
+Does what you do in this life matter? 
+
+How do you separate devine guidance from personal bias? Have you ever mistaken/conflated the two? Has anyone you know? Has any leader of the faith? If not, how is that possible? If so, and you feel entitled to pass judgement, then the first question is critical.
