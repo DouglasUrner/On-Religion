@@ -8,8 +8,7 @@ For many of us it may be hard to be "all in" – we have the privilage of not *
 
 * Know why you are an ally - why are you in this fight? How does *your* life be better when their lives get better? What is in it for you? If you look honestly at it, some of your reasons may be kind of *weird* – that's ok, reflect on it, learn as much as you can and recognize that we're all a mess…
 
->If you have come here to help me, you are wasting your time. But if you have come because your liberation is bound up with mine, then let us work together.  
-[Lilla Watson](https://en.wikipedia.org/wiki/Lilla_Watson)
+  >If you have come here to help me, you are wasting your time. But if you have come because your liberation is bound up with mine, then let us work together. ~ [Lilla Watson](https://en.wikipedia.org/wiki/Lilla_Watson)
 
 * Do your homework - as you work at being an ally, put your own energy into understanding the struggles of the folks you're trying to support. Learn from *them* but don't expect them to teach *you.*
 
