@@ -23,3 +23,9 @@ For many of us it may be hard to be "all in" – we have the privilage of not *
 * Know that you'll make some serious "beginner mistakes" - they will feel awful, they will be humiliating, you'll want to give up. You might even get angry and want to "lash back" at your allies. It's messy, it can get ugly, it's normal. Expect it so that when it happens you'll be (sort of) prepared and (a bit more) able to "get back up on the horse." This is a long game.
 
 * Assume that some of the "corrections" for your mistakes will make your allies really angry at you. That will really feel awful. When it happens, shut up and listen, in the meantime remember that you're *only* in this position because you're trying to do the right thing and that you're doing it boldy enough to screw up and get noticed. It's not good to screw up and it really sucks to get called on it, especially when you're getting called out by the folks who you thought you were supporting.
+
+* Notice when you feel "hemmed in" – I still remember being about 6 or 8 and having my babysitter talk about her "girlfriends" – it sounded so nice to have someone that special, **and** I knew, even at that age and with *zero* experionce of LGBTQ people, not even the idea that such people existed, that as a "man-to-be" that my best male friend **could not** be my "boyfriend." How are you forced to conform? How do you force yourself to conform? How does sexism, and racism, and homophobia, and transphobia, and all of the other fearful and hateful behaviors that "don't apply" to you actually limit and lessen you?
+
+* In the parts of the world where you have power make it easier and more comfortable for everyone. Reduce the emotional and spritual cost of dealing with your office by not having a binary choice for genders.
+
+* 
