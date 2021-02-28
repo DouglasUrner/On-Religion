@@ -1,10 +1,13 @@
 # How to be useful when it's not "your" fight
 
-For some reason, this pair of tweets really hit home this week (late February 2021):
-> Hey, cis people: please understand how unremittingly exhausting and dispiriting it is to watch other people debate your basic personhood like it's a thought experiment. ~ [](https://twitter.com/NotLasers/status/1365290852843728899?s=20)
-> I’m someone who benefits from- but at least tries to acknowledge- basically every privilege. I can only begin to try to understand, empathize, and support. This fight shouldn’t exist. It’s not always clear to me how I can help but I’ll continue to try. ~ [Tyler Klose (@TylerKlose1)](https://twitter.com/TylerKlose1/status/1365311402488057865?s=20)
+For some reason, this tweet hit particularly hard this week (late February 2021):
+> Hey, cis people: please understand how unremittingly exhausting and dispiriting it is to watch other people debate your basic personhood like it's a thought experiment. ~ [(((Jay Edidin))) (@NotLasers)](https://twitter.com/NotLasers/status/1365290852843728899?s=20)
 
-First, it's only "not your fight" in the sense that you have less "skin in the game." An injury to one is most assuradly an injury to all and we are all impacted by oppression – sometimes in ways we see, and often in ways that we don't see. That said, those of us with some privilage and who aren't face with a day-to-day struggle to survive in a particular domain, do better when we listen and learn when to step back and let those with "no choice" lead and learn from them.
+This response could have been me:
+
+> I’m someone who benefits from - but at least tries to acknowledge - basically every privilege. I can only begin to try to understand, empathize, and support. This fight shouldn’t exist. It’s not always clear to me how I can help but I’ll continue to try. ~ [Tyler Klose (@TylerKlose1)](https://twitter.com/TylerKlose1/status/1365311402488057865?s=20)
+
+First, it's only "not your fight" in the sense that your life is not *immediately* on the line. An injury to one is most assuradly an injury to all and we are all impacted by oppression – sometimes in ways we see, and often in ways that we don't see. That said, those of us with some privilage and who aren't face with a day-to-day struggle to survive in a particular domain, do better when we listen and learn when to step back and let those with "no choice" lead and learn from them.
 
 I come to this primarily from trying to be an ally to LGBTQ folk
 
