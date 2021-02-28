@@ -35,4 +35,8 @@ For many of us it may be hard to be "all in" – we have the privilage of not *
 
 * In the parts of the world where you have power make it easier and more comfortable for everyone. Reduce the emotional and spritual cost of dealing with your office by not having a binary choice for genders.
 
-* 
+## Factoids
+
+* If you know enough people to count a red head amoung your aquaintences, you probably also know an intersex person – both are a bit under 2% of the population, 1 person in 50. The count of intersex people may be low, as there is a still developing understanding of what it means to be intersex and it is often considered personal and private. Stats from: [The Gender Spectrum: A Scientist Explains Why Gender Isn’t Binary][ch-2021]
+
+[ch-2021]: https://cadehildreth.com/gender-spectrum/amp/
