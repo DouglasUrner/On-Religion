@@ -1,5 +1,11 @@
 # Journal
 
+## 2021-03-13
+
+At birth, it may usually be possible to asign a reproductive role (aka sex), but asigning, even broadly, a child their role in society – even in the broadest of terms (aka gender) is an act of tremendous arrogance. We have made tremendous strides over the last 50 or 100 years in seeing the tremendous overlaps in gender roles, or maybe we're even starting to see the declining relevance of those roles – at the same time the roles persist in the siliest and most persistant of ways. We seem to be defining the genders less in terms of interesting intrinsics and more and more in oposition to each other.
+
+What becomes of those whose bodies betray them and will not let thim live in comfortable androdyny or who want to fully inhabit the space that had previously been "reserved" for the "oposite" gender – but whose bodies are shaped by the workings of a sex that does not align with their gender? I imagine this would be hard in the most enligtened of societies, but today it is beyond hard. For some it is dangerous. For some it is deadly.
+
 ## 2020-11-22
 
 How do you test god/religion? What are the risks of being wrong? Is it right/moral/ethical/in keeping with your faith to hurt others? To hurt others if they are disobeying god? What are the consequences if you are wrong in your interpretation of how someone is living their life?
