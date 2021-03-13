@@ -1,18 +1,12 @@
 # Journal
 
-## 1988?
+## 2020-11-22
 
-The thing we call "god" is the impulse that most, maybe even, all humans feel to be good and decent people – to be "human." This impluse can conflict with other, equally human, impulses: acceptance, security, etc.. Religion is the social / communal effort to nurture god and to navigate the competition between impulses. The "god impulse" has, in Darwinian terms, "survival value." Groups of people with an effective religion tend to be successful. 
+How do you test god/religion? What are the risks of being wrong? Is it right/moral/ethical/in keeping with your faith to hurt others? To hurt others if they are disobeying god? What are the consequences if you are wrong in your interpretation of how someone is living their life?
 
-## 2020-11-07
+Does what you do in this life matter? 
 
-Religion is a system for monitoring the functioning of the often buggy threads of exection in the odd and poorly understood machines we call "humans" – a "superviosory process" if you will. It is subject to, and benefits from, the analytical methods that are applied to complex software systems that run on the machines we calls "computers."
-
-We can analyze both the design and the security of religions. We can develop tests for them (and for the other "processes" that we run to guide human society).
-
-Deities make sense and are ***huge*** bugs.
-
-Without deities specs and testing are possible.
+How do you separate devine guidance from personal bias? Have you ever mistaken/conflated the two? Has anyone you know? Has any leader of the faith? If not, how is that possible? If so, and you feel entitled to pass judgement, then the first question is critical.
 
 ## 2020-11-08
 
@@ -26,10 +20,16 @@ According to Nicholas Cristakis religososity increases in times of fear and cris
 
 Cristakis conflates "religion" with adherence to moral authority – seeking outside direction for what to do in the ethical/moral/compassionate spheres of our lives.
 
-## 2020-11-22
+## 2020-11-07
 
-How do you test god/religion? What are the risks of being wrong? Is it right/moral/ethical/in keeping with your faith to hurt others? To hurt others if they are disobeying god? What are the consequences if you are wrong in your interpretation of how someone is living their life?
+Religion is a system for monitoring the functioning of the often buggy threads of exection in the odd and poorly understood machines we call "humans" – a "superviosory process" if you will. It is subject to, and benefits from, the analytical methods that are applied to complex software systems that run on the machines we calls "computers."
 
-Does what you do in this life matter? 
+We can analyze both the design and the security of religions. We can develop tests for them (and for the other "processes" that we run to guide human society).
 
-How do you separate devine guidance from personal bias? Have you ever mistaken/conflated the two? Has anyone you know? Has any leader of the faith? If not, how is that possible? If so, and you feel entitled to pass judgement, then the first question is critical.
+Deities make sense and are ***huge*** bugs.
+
+Without deities specs and testing are possible.
+
+## 1988?
+
+The thing we call "god" is the impulse that most, maybe even, all humans feel to be good and decent people – to be "human." This impluse can conflict with other, equally human, impulses: acceptance, security, etc.. Religion is the social / communal effort to nurture god and to navigate the competition between impulses. The "god impulse" has, in Darwinian terms, "survival value." Groups of people with an effective religion tend to be successful. 
